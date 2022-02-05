@@ -1,1 +1,0 @@
-# Artificial-intellience-minor-project
